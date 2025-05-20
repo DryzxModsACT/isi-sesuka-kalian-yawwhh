@@ -1,0 +1,1 @@
+# isi-sesuka-kalian-yawwhh
